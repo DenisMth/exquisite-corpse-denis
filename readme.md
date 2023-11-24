@@ -20,3 +20,6 @@ Finalement, le dragon se rendit compte qu'il avait été manipulé par des force
 
 Le chevalier Bruce gagna le respect du dragon et des villageois reconnaissants, prouvant que la bravoure et la sagesse étaient ses véritables armes contre les plus grandes menaces.
 
+## Chapitre 3
+
+Les échos de la victoire de Bruce se répandirent, mais une menace obscure se profilait. Des rumeurs sur une relique ancienne aux pouvoirs sombres l'atteignirent. Déterminé à préserver la paix, Bruce partit en quête de cette relique. Sa route le conduisit à travers des terres inconnues, mais plus il s'approchait, plus des ombres malveillantes se révélaient, dévoilant un complot sinistre.
